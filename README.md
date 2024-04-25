@@ -19,4 +19,4 @@
 
 [My website](https://store.steampowered.com/app/730/CounterStrike_2/)
 
-![Counter Strike 2](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRtAFaYZYhp-t1Zr5tXPE5w7_rSIsb9ypo_TPX3cHxENQ&s)
+![Counter Strike 2](https://staticg.sportskeeda.com/editor/2023/10/af6bb-16963209281653-1920.jpg?w=640)
